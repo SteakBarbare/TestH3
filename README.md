@@ -6,6 +6,6 @@ Second changement pour les branches
 
 It appears you cought me mid-suavemente
 
-Techno, toujours pareil. Musique de défonceman
+Techno, toujours pareil. Boum boum dans les oreilles. Musique de défonceman
 
 kk, mdr
